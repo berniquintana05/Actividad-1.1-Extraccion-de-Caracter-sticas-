@@ -1,1 +1,1 @@
-# Actividad-1.1-Extraccion-de-Caracter-sticas-
+# Actividades 1 y 2
